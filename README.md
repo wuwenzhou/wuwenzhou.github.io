@@ -1,2 +1,0 @@
-# wuwenzhou.github.io
-wuwenzhou
